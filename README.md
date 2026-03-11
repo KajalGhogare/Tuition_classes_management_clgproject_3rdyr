@@ -1,1 +1,1 @@
-# Tuition_classes_management_clgproject_3rdyr
+# customer_project_beauty_parlour.
